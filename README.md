@@ -21,16 +21,16 @@ Sauf qu’il n’y avait eu aucune fête. Aucune invitation. Aucun convive autre
 qui nous écoutent désormais toute la journée a travers nos écrans, nos montres, nos bracelets de running ou nos 
 téléphones. Ils n’oublient jamais rien eux. 
 
-Comment avais-je pu en arriver là ? Ce printemps avait pourtant commencée sans histoire. Certes je ne suis pas ce qu’ils 
+Comment avais-je pu en arriver là ? Ce printemps avait pourtant commencé sans histoire. Certes je ne suis pas ce qu’ils 
 appellent un “citoyen modèle”, mais pas non plus un fauteur de trouble. Père de famille aimant et quadragénaire 
-légèrement bedonnant, je suis les règles. Je râle souvent -c’est vrai- mais comme tout bon français, ni plus ni moins. 
+légèrement bedonnant, je suis les règles. Je râle souvent -c’est vrai- mais comme tout bon Français, ni plus ni moins. 
 
 Avec le recul maintenant j'en suis persuadé, tout a commencé ce soir où nous sommes allés diner chez nos amis 
 Vincent et Sophie ma femme et moi. Il faut dire que nous avions particulièrement bien arrosé notre repas ce soir là,
 et le niveau sonore plus élevé que d’habitude dans leur appartement avait du déclencher une attention encore plus 
 particulière de leur boitier BiG-Mother-G (plus communément appelée la Mother-box). C'est Sophie qui avait pourtant
-lancé le sujet en me parlant de mon aspect actuel : "tu n'aurais pas un peu grossi toi d'aillleurs ?" me lança t-elle 
-au moment ou Vincz et moi discutions de la dictature des régimes amincissants dans tous les media a l’approche des 
+lancé le sujet en me parlant de mon aspect actuel : "tu n'aurais pas un peu grossi toi d'ailleurs ?" me lança t-elle 
+au moment ou Vincz et moi discutions de la dictature des régimes amincissants dans tous les media à l’approche des 
 vacances d’été. "Moi j'en ai marre de leurs injonctions à maigrir" avais-je répondu. "Et puis ça ne va pas s'arranger 
 d'ailleurs, car j'ai décidé d'arrêter le courir le matin. Depuis que je me suis blessé au genou ça me saoule...
 *j'ai mal partout a chaque fois*. Il faudrait sans doute que j'aille voir un osthéo, mais je n'ai vraiment pas le temps 
